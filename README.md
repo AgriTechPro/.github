@@ -12,7 +12,7 @@ AgriTechPro is dedicated to revolutionizing agriculture through innovative techn
 
 For inquiries or more information, please reach out to us:
 
-- **Email**: [info@agritechpro.com](mailto:info@agritechpro.com)
+- **Email**: [jswapnil@myyahoo.com](mailto:jswapnil@myyahoo.com)
 
 
 ## Follow Us
